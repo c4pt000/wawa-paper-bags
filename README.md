@@ -2,7 +2,7 @@
 paper instead of polypropylene
 
 
-https://drive.google.com/file/d/1DnUHMnB6TQ5 GgAqVPdOCz8id9PAWEeJb/view?usp=drivesdk
+https://drive.google.com/file/d/1DnUHMnB6TQ5GgAqVPdOCz8id9PAWEeJb/view?usp=drivesdk
 
 
 ![s1](https://github.com/c4pt000/wawa-paper-bags/blob/main/IMG_20211001_134035504.jpg?raw=true)
