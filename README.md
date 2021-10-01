@@ -7,6 +7,8 @@ https://drive.google.com/file/d/1DnUHMnB6TQ5GgAqVPd0Cz8id9PAWEeJb/view?usp=drive
 
 ![s1](https://github.com/c4pt000/wawa-paper-bags/blob/main/IMG_20211001_134035504.jpg?raw=true)
 
+![s1](https://github.com/c4pt000/wawa-paper-bags/raw/main/IMG_20211001_134014373_HDR.jpg)
+
 
 these bags are not biodegradable they don't wear down when discarded
 
